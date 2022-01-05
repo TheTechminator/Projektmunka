@@ -1,0 +1,1 @@
+Üdvözöljük az oldalon! <br> Önnek lehetősége van autókat felvenni és törölni a rendszerből. Amennyiben segítségre van szüksége keresse ügyfélszolgálatunkat. <br> Köszönjük, hogy rendszerünket használja.
